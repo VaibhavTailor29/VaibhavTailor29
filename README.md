@@ -1,5 +1,5 @@
 # 💫 About Me:
-🤔 I'm Student.<br>🔭 I’m Currently Preparing For Placements.<br>🌱 I’m currently Growing My Skill from different Resources.<br>💬 Ask me about Good First Issues & Exciting projects to work on.<br>📫 How to reach me: https://bit.ly/3BJ4rYY<br>😄 Pronouns: He/His<br>⚡ Fun fact : Good Battleground Mobile India(PUBG) Player.<br>
+🤔 I'm Student.<br>🔭 I’m Currently Preparing For Placements.<br>🌱 I’m currently Growing My Skill from different Resources.<br>💬 Ask me about Good First Issues & Exciting projects to work on.<br>📫 How to reach me: https://www.linkedin.com/in/vaibhav-tailor-985467229/<br>😄 Pronouns: He/His<br>⚡ Fun fact : Good Battleground Mobile India(PUBG) Player.<br>
 
 
 ## 🌐 Socials:
